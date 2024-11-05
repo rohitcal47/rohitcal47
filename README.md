@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming and coding
 - 🌱 I’m currently learning python, sql and web technologies
 - 💞️ I’m looking to collaborate on learning
-- 📫 How to reach me: email: rohitcal47@gmail.com ph: +91 7065 477 477
+- 📫 How to reach me: email - rohitcal47@gmail.com ph - +91 7065 477 477
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I can speak 5 languages
 
